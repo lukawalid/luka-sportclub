@@ -1,0 +1,2 @@
+# luka-sportclub
+Sports clubs range from organisations whose members play together, unpaid, and may play other similar clubs on occasion, watched mostly by family and friends, to large commercial organisations with professional players which have teams which regularly compete against those of other clubs and attract sometimes very large crowds of paying spectators. Clubs may be dedicated to a single sport or to several (multi-sport club).
